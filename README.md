@@ -11,6 +11,18 @@ One person to qualify as a hero is Emerson Potter,
 ### High Points
 My high points can be summarized by my travels and the Hand of God moments below.
 
+In my senior year of high school, I went on a missions trip to China with my dad for two weeks.
+![The Great Wall](images/great_wall.JPG)
+
+For my junior year of college, I studied abroad in Ulm, Germany.
+![Ulm Panorama](images/ulm_panorama.JPG)
+
+During that year, I took a trip to Italy for a week, among other travels.
+![Trevy Fountain](images/trevy.JPG)
+
+I was able to see The Last Supper in the church where it was painted.
+![The Last Supper](images/last_supper.JPG)
+
 ### Hard Times
 I have suffered from bouts of loneliness.
 
