@@ -10,17 +10,15 @@ To make a long story short, my parents declared bankruptcy and we had to foreclo
 That period of time gave me a lot of anxiety and it has profoundly affected how I view money.
 However, ever since I overcame that anxiety I have had a fundamental confidence that God is in control and that everything will work out fine.
 I am quite frugal and have extensive budgets and financial goals but I have to balance that with Matthew 6:33.
-My father is also close to a hoarder. He is a perpetual project starter but never a project finisher.
-That aspect of his personality that I can see in myself along with our general consumerist society has caused me to become a minimalist, which only furthers my frugality.
 
-I feel that I did not have very many heroes in my formative years.
-My parents have always said that I have a very clear sense of right and wrong, which led me to essentially always follow the rules and excel as a student.
-That has led me to struggle with perfectionism and focusing on works instead of grace.
-And of course I am by know means actually perfect so that only leads to cycles of guilt and shame.
-I am a very introspective person and I am also excellent at disconnecting my emotions in certain situations (which is not always good, believe me).
-But I do also struggle with anger and frustration that I am not able to control my situation.
+I feel that I did not have very many Christian mentors in my formative years.
 The churches that I went to as a child did not have very strong youth ministries and my limited experience in them led me to believe I was the only real Christian in that group because I saw how much their actions did not line up with their supposed faith in Jesus.
 It was also unfortunate that no one at my church went to the same school until I switched churches in high school.
+My parents have always said that I have a very clear sense of right and wrong, which led me to essentially always follow the rules and excel as a student.
+That has led me to struggle with perfectionism and focusing on works instead of grace.
+And of course I am by no means actually perfect, so that only led to cycles of guilt and shame.
+I am a very introspective person and I am also excellent at disconnecting my emotions in certain situations (which is not always good, believe me).
+But I do also struggle with anger and frustration that I am not able to control my situation.
 One of the reasons that I joke so much about church phrases is that I believe those phrases help someone hide from actually doing things Jesus would do.
 In general I suppose I have a cynical view of most people who claim to be Christians but are really "Churchians."
 
@@ -87,7 +85,6 @@ I have always loved listening to and singing along to music.
 My favorite style of worship songs are long and calm.
 For particular songs I actually have physical reactions such as spontaneous goosebumps and feeling like my blood has thickened.
 I feel like music is a way for my soul to connection to God.
-One really bad time in my life was when I overheard my parents talking about money and while I was eavesdropping it somehow came up that my dad would have preferred to not buy my saxophone due to our financial situation at the time. I know that he doesn't know any of the paragraph above but it felt like he was ripping my soul out.
 
 I want to end this lifeplan by talking about my brothers.
 Biologically I only have a single sister, but since I met Jarred, Alex, and Zac in middle school I have had three brothers.
